@@ -5,4 +5,3 @@
 - 🤔 I’m looking for help with whatever you would like to contribute.
 - 📫 How to reach me: * Instagram: @aryn_jaiswal or go to www.linktr.ee/aryan.jaiswal
 - ⚡ Fun fact: Coding is cool when starting but feels headache when moving along.
--->
